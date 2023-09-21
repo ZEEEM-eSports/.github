@@ -1,0 +1,3 @@
+Die ZEEEM eSports GmbH bietet eine neue Generation an Rennsimulatoren und eine einzigartige Event Location. Entwickelt von einem Team aus Rennsport-, IT- und Designspezialisten für die neue Professionalität im SimRacing – made in Germany.
+
+Vom Asphalt bis zur Platine – wir sind mit Leib und Seele mit der Materie vertraut. Wir kennen die einzelnen Komponenten vom großen Ganzen bis ins kleinste Detail. Unser Perfektionismus, unser KnowHow und die Motivation etwas ultimatives zu erschaffen haben uns immer weiter getrieben! Die Team-Kombination aus IT-Spezialisten, Design- und Rennsportprofis ist dabei wahnsinnig motivierend und erfolgreich!
